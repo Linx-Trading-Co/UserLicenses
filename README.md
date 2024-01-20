@@ -1,1 +1,1 @@
-https://www.javainuse.com/aesgenerator
+http://aes.online-domain-tools.com/
